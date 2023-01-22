@@ -1,2 +1,1 @@
-# -Buitre_ffhx
-Buitre bot oficial 
+Creador oficial del Buitre Bot:+573145649651
